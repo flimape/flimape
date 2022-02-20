@@ -1,6 +1,6 @@
 ## Hello world!! I'm Pedro F. Lima
 
--📚 I'm currently attending high school at Instuto Federal do Sul de Minas - Campus Machado
+-📚 I'm currently attending high school at Instituto Federal do Sul de Minas - Campus Machado
 
 -📐 In a relationshiop with Physics and Mathematics
 
