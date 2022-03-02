@@ -2,7 +2,7 @@
 
 -📚 I'm currently attending high school at Instituto Federal do Sul de Minas - Campus Machado
 
--📐 In a relationshiop with Physics and Mathematics
+-📐 In a relationship with Physics and Mathematics
 
 -✈ Studying for Instituto Tecnólogico de Aeronáutica (ITA)
 
