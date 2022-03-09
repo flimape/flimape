@@ -4,7 +4,7 @@
 
 -📐 In a relationship with Physics and Mathematics
 
--✈ Studying for Instituto Tecnólogico de Aeronáutica (ITA)
+-✈ Studying for Instituto Tecnológico de Aeronáutica (ITA)
 
 
 <div align="center">
