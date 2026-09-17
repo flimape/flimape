@@ -6,6 +6,6 @@
 
 
 - 🎓 &nbsp; Graduando em Engenheria Elétrica na UNIFEI;
-- 💼 &nbsp; Membro do Programa de Educação Tutorial da Engenheria Elétrica 
-- 🤔 &nbsp; Explorando novas pesquisas e democratizando o conhecimennto.
+- 💼 &nbsp; Membro do Programa de Educação Tutorial da Engenheria Elétrica;
+- 🤔 &nbsp; Explorando novas pesquisas e democratizando o conhecimennto;
 - ✍️ &nbsp; Como hobby, leio, jogo xadrez, escrevo e luto Jiu-Jitsu. 
